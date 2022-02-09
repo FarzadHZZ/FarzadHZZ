@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Farzad_HZ
+- 🎮 I'm a gamer
+- 🐍 I’m currently learning python
+- 💞️ I’m looking to collaborate on aparat
+- 📫 How to reach me ||BeToChe@gmail.com||
